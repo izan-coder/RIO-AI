@@ -1,2 +1,3 @@
-# RIO-AI
-# R.I.O-AI is a ™ of JSTUDIO by Izan Ahamed KP. All copyrights belong to JSTUDIO
+# R.I.O AI
+© 2026 Izan Ahamed KP and JSTUDIO™ . All rights reserved.
+This file is legally protected.
